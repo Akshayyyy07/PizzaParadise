@@ -2,7 +2,8 @@
 ![image](https://github.com/Akshayyyy07/Rebound-Fitness/assets/152633881/c1021af9-a358-4996-8109-4dd759d32b70)
 ![image](https://github.com/Akshayyyy07/Rebound-Fitness/assets/152633881/29d1ebb9-045a-4059-93e8-9baf743e735b)
 ![image](https://github.com/Akshayyyy07/Rebound-Fitness/assets/152633881/6fffe8ad-6410-4a69-96aa-2addbf0b213c)
-![image](https://github.com/Akshayyyy07/Rebound-Fitness/assets/152633881/59d33017-a7c7-4cb6-b3bc-a922344c3c75)
+![image](https://github.com/Akshayyyy07/Rebound-Fitness/assets/152633881/555ad9ce-d2aa-40f9-ac96-900012043605)
+
 
 
 
